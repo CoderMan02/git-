@@ -1,1 +1,2 @@
 Once upon a time, in a forest, there lived a monkey who resided on a belly tree, which happened to be on the banks of a river. In the same forest lived a crocodile and his wife. 
+One day the crocodile came to the banks of the river and rested under a tree, and the kind-hearted monkey offered some fruits to him. The crocodile came back the nexy day for  more fruits, as he loved them. As days passed the crocodile and monkey's bestowed friendship began.
